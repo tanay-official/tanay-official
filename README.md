@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python.
 - 💞️ I’m looking to collaborate on Some Multinational IT-based companies.
 - 📫 How to reach me tanay.paul.official@gmail.com
-- 😄 Pronouns: Tonoy Pal
+- 😄 Pronouns: He/Him/His/Himself
 - ⚡ Fun fact: Many people know me as a Filmmaker/Cinematographer/Photographer.
 
 <!---
